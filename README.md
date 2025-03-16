@@ -10,7 +10,7 @@
 
 * Games
 
-Create and grow amazing games across 20+ platforms and billions of devices with our end-to-end tools and services for creation, launch, and beyond.⁵
+Create and grow amazing games across 20+ platforms and billions of devices with our end-to-end tools and services for creation, launch, and beyond.
 
 * Industry
 
